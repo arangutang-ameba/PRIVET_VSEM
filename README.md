@@ -1,0 +1,2 @@
+# PRIVET_VSEM
+sdolakfjn
